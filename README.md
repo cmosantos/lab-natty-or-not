@@ -59,19 +59,19 @@ Aqui utilizo tecnologias de IA para criar:
 
 ### 🎬 **Vídeo – Natty or Not (HeyGen)**
 ▶️ Assista ao vídeo completo:  
-https://drive.google.com/file/d/1x9Dy1ZlXtyStiuFxazxqCIyZ17dyrrBm/view?usp=drive_link
+https://drive.google.com/file/d/1x9Dy1ZlXtyStiuFxazxqCIyZ17dyrrBm/view?usp=sharing
 
 ---
 
 ### 🎧 **Podcast – NattyCast Episódio 1**
 🎧 Ouça o podcast aqui:  
-https://drive.google.com/file/d/1dSlDyRTNosylYqbYp0LyntZZEaxM8TYH/view?usp=drive_link
+https://drive.google.com/file/d/1dSlDyRTNosylYqbYp0LyntZZEaxM8TYH/view?usp=sharing
 
 ---
 
 ### 🖼️ **Imagem Futurista**
 🖼️ Visualize a imagem oficial do projeto:  
-https://drive.google.com/file/d/1jdi22lbMPmaGgUC8V1oMADkFbW-1Rtj2/view?usp=drive_link
+https://drive.google.com/file/d/1jdi22lbMPmaGgUC8V1oMADkFbW-1Rtj2/view?usp=sharing
 
 ---
 
